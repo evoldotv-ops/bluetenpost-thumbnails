@@ -1,0 +1,21 @@
+# Bildnachweise F74: Nach der Absage wollte sie den Tisch wieder abräumen
+
+Eigenständige fiktive Erzählung und Redaktion: Blütenpost. Szenische Illustrationen wurden für diese Geschichte mit generativer KI erstellt. Reale Detailfotos illustrieren die Handlung und dokumentieren keine tatsächlichen Ereignisse.
+
+## Verwendete reale Aufnahmen
+
+- **serviette**: rawpixel.com, Freepik/Magnific, Stock-Nr. 18144800. [Originalseite](https://www.magnific.com/free-photo/empty-dinner-table-background_18144800.htm). Über Magnific lizenziert; Ausschnitt und sanfte Kamerafahrt. Kein KI-generiertes Foto laut Anbieterkennzeichnung beim Abruf am 06.11.2026.
+- **kuerbissuppe**: azerbaijan_stockers, Freepik/Magnific, Stock-Nr. 5433577. [Originalseite](https://www.magnific.com/free-photo/roasted-pumpkin-carrot-soup-with-cream-seeds-fresh-green-ceramic-bowl-top-view_5433577.htm). Über Magnific lizenziert; Ausschnitt und sanfte Kamerafahrt. Kein KI-generiertes Foto laut Anbieterkennzeichnung beim Abruf am 06.11.2026.
+- **kuerbis**: magnific, Freepik/Magnific, Stock-Nr. 6162223. [Originalseite](https://www.magnific.com/free-photo/flat-lay-pumpkin-soup-bowl-with-pumpkin_6162223.htm). Über Magnific lizenziert; Ausschnitt und sanfte Kamerafahrt. Kein KI-generiertes Foto laut Anbieterkennzeichnung beim Abruf am 06.11.2026.
+- **birnen**: KamranAydinov, Freepik/Magnific, Stock-Nr. 13536075. [Originalseite](https://www.magnific.com/free-photo/front-view-fresh-mellow-pears-green-juicy-brown-space_13536075.htm). Über Magnific lizenziert; Ausschnitt und sanfte Kamerafahrt. Kein KI-generiertes Foto laut Anbieterkennzeichnung beim Abruf am 06.11.2026.
+- **tisch detail**: magnific, Freepik/Magnific, Stock-Nr. 12296345. [Originalseite](https://www.magnific.com/free-photo/flat-lay-composition-beautiful-tableware-table_12296345.htm). Über Magnific lizenziert; Ausschnitt und sanfte Kamerafahrt. Kein KI-generiertes Foto laut Anbieterkennzeichnung beim Abruf am 06.11.2026.
+- **treppe**: wirestock, Freepik/Magnific, Stock-Nr. 10187189. [Originalseite](https://www.magnific.com/free-photo/low-angle-shot-stairs-as-they-lead-door-building_10187189.htm). Über Magnific lizenziert; Ausschnitt und sanfte Kamerafahrt. Kein KI-generiertes Foto laut Anbieterkennzeichnung beim Abruf am 06.11.2026.
+- **birnen nah**: 8photo, Freepik/Magnific, Stock-Nr. 9355532. [Originalseite](https://www.magnific.com/free-photo/pears-bowl-wooden-piece-sack_9355532.htm). Über Magnific lizenziert; Ausschnitt und sanfte Kamerafahrt. Kein KI-generiertes Foto laut Anbieterkennzeichnung beim Abruf am 06.11.2026.
+- **buecher**: rawpixel.com, Freepik/Magnific, Stock-Nr. 21631166. [Originalseite](https://www.magnific.com/free-photo/antique-book-shelf-vintage-background_21631166.htm). Über Magnific lizenziert; Ausschnitt und sanfte Kamerafahrt. Kein KI-generiertes Foto laut Anbieterkennzeichnung beim Abruf am 06.11.2026.
+- **regenfenster**: rawpixel.com, Freepik/Magnific, Stock-Nr. 17228721. [Originalseite](https://www.magnific.com/free-photo/white-apartment-through-window-with-rain-drops_17228721.htm). Über Magnific lizenziert; Ausschnitt und sanfte Kamerafahrt. Kein KI-generiertes Foto laut Anbieterkennzeichnung beim Abruf am 06.11.2026.
+- **kekse**: azerbaijan_stockers, Freepik/Magnific, Stock-Nr. 12583440. [Originalseite](https://www.magnific.com/free-photo/stack-festive-biscuits-cup-tea-gray-table-high-quality-photo_12583440.htm). Über Magnific lizenziert; Ausschnitt und sanfte Kamerafahrt. Kein KI-generiertes Foto laut Anbieterkennzeichnung beim Abruf am 06.11.2026.
+- **tee**: azerbaijan_stockers, Freepik/Magnific, Stock-Nr. 7101438. [Originalseite](https://www.magnific.com/free-photo/cup-tea-with-biscuits-tray-around-top-view_7101438.htm). Über Magnific lizenziert; Ausschnitt und sanfte Kamerafahrt. Kein KI-generiertes Foto laut Anbieterkennzeichnung beim Abruf am 06.11.2026.
+
+## Weitere Bestandteile
+
+Die Figuren sind erfunden. Erzählerstimme und szenische Illustrationen wurden mit KI-Unterstützung erstellt und redaktionell geprüft. Musik: vorhandene eigene Produktionsbibliothek von Blütenpost, ursprünglich lokal mit MusicGen erzeugt. Die Commons-Lizenzen betreffen die jeweils genannten Fotos und deren Bearbeitungen.
